@@ -1,2 +1,2 @@
-Hi, I’m from the People's Republic of China Boy.
+Hi, I’m from the People's Republic of China boy.
 
